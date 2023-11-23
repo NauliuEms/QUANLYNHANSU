@@ -2,4 +2,4 @@
 
 
 
-thai
+thaidz
